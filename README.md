@@ -27,3 +27,5 @@ Links:
 If something is not clear or could be described better, let me know in comments. I'm always happy to improve.
 
 BTW, after this challenge you might ger job. Good luck!
+
+P.S. Leave your feedback.
