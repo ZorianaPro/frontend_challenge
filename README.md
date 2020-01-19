@@ -24,4 +24,6 @@ Links:
 2. Menu hover: https://zpl.io/VDnx8Br
 3. Design for mobile: https://zpl.io/2Zk5xjl 
 
-If something is not clear or could be described better, let me know in comments. I'm always happy to improve
+If something is not clear or could be described better, let me know in comments. I'm always happy to improve.
+
+BTW, after this challenge you might ger job. Good luck!
